@@ -4,4 +4,4 @@ Mi nombre es Josué Javier PC (o Javi).
 
 🎓 Estudio Ingeniería de Informatica.
 
-✨ F "El conocimiento es poder, pero compartirlo nos hace invencibles."
+✨ "El conocimiento es poder, pero compartirlo nos hace invencibles."
