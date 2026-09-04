@@ -1,7 +1,7 @@
 ## Hi there 👋
 
-Mi nombre es Josué Javier Pañuni Churata (o Javi).
+Mi nombre es Josué Javier PC (o Javi).
 
 🎓 Estudio Ingeniería de Informatica.
 
-✨ Frase motivacional: "El conocimiento es poder, pero compartirlo nos hace invencibles."
+✨ F "El conocimiento es poder, pero compartirlo nos hace invencibles."
